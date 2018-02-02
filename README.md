@@ -1,4 +1,4 @@
-## I Love Catherine
+## I LOVE Catherine
 
 My name is Nathan, and I love my girlfriend so much.
 I'm gonna list few reasons why she's so amazing.
